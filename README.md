@@ -1,3 +1,3 @@
-School and State Finance Project Exercise
+School and State Finance Project 
 
 
